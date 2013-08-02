@@ -1,0 +1,4 @@
+orenocreative
+=============
+
+コンピテンシーwww
